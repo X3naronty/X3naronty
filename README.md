@@ -70,7 +70,7 @@ I'm a patienet and quiet person deeply passionate about copmuter science, intere
 *CURRENT* <br>
 *2023.09.01 - 2028.08.31* <br> Jędrzejów / Poland <br>
 AWANS Private College <br>
-**ENGINEER PROGRAMMER** 
+**COMPUTER SCIENCE** 
 
 ### Experience
 *2025.03.10 - 2025.03.21* <br>
